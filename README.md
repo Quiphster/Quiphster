@@ -1,4 +1,4 @@
-Yo, I’m Quiphster
+
 bios are boring.
 
 <!---
